@@ -1,8 +1,7 @@
 ### Hi there 👋
--  Trabajando en nada
+-  Trabajando en un proyecto educativo
 -  "Aprendiendo" a configurar redes.
 -  Hombre
--  Todavía no busco ayuda 
 -  Preguntame: Nada
 -  Por email se contacta conmigo
 -  Fun fact: Detesto los emojis
